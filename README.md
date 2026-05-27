@@ -13,3 +13,7 @@ be myfrien d :3c
 <img width="724" height="475" alt="image" src="https://github.com/user-attachments/assets/4b53e24a-8bb4-4b71-8dea-206fd70c0156" />
 loser loser loser loser l
 
+
+<img width="1062" height="737" alt="image" src="https://github.com/user-attachments/assets/ab718b78-cce7-406d-80fc-ec5007d3d707" />
+
+## YAYYYY YAYY be nice to him
