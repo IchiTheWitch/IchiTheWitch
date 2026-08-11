@@ -11,9 +11,9 @@ be myfrien d :3c
 <img width="489" height="351" alt="image" src="https://github.com/user-attachments/assets/3deb09a5-cf24-4b1a-b8a2-57f7c4feb241" /> <img width="382" height="292" alt="image" src="https://github.com/user-attachments/assets/b915ac27-7cd5-4877-810d-816ec99c7952" />
 #pillow
 
+<img width="605" height="453" alt="image" src="https://github.com/user-attachments/assets/41c9cdd3-d929-49ee-a7e4-99f4a46b143f" />
+rakuu raku rakuuu my raku
 
-<img width="724" height="475" alt="image" src="https://github.com/user-attachments/assets/4b53e24a-8bb4-4b71-8dea-206fd70c0156" />
-loser loser loser loser l
 
 
 <img width="1062" height="737" alt="image" src="https://github.com/user-attachments/assets/ab718b78-cce7-406d-80fc-ec5007d3d707" />
